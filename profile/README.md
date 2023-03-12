@@ -2,5 +2,5 @@
 - organization dedicated to discord ra- i mean trolling.
 
 ## signatures
-- i just had a dick in my mouth it was so fucking good wtf - lucy
+- i want to suck a dick help - lucy
 - ooooo that was a creamy one - january
